@@ -1,2 +1,2 @@
 # Josephmakar.github.io
-ehhh
+welp all i know how to do is play with the readmes :(
